@@ -23,7 +23,7 @@ I used to do tons of *fake work*, reading materials which not relevant to school
 I am still making this mistake somehow, like making class note, but for reasoning process. (only for memorize the outline, for taking note advice, recommand this clip from [Jordan Peterson](https://youtu.be/lMvvdz7YJ-Q?si=lCfU6Jb73EW5ADvT).
 
 
-<img src="https://github.com/zishenchan/zishenchan.github.io/assets/96612600/c828461b-239e-46b7-ae46-b97831fa3199" width="300" height="300">
+<img src="https://github.com/zishenchan/zishenchan.github.io/assets/96612600/f7a80381-2b83-4bc2-8adf-74e2b5e6d461" width="300" height="300">
 
 
 
